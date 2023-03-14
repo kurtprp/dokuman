@@ -8,6 +8,7 @@
 
 İşbirliği Sözleşmesi https://docs.google.com/document/d/1Y-jDLU7astwd2CbV7XO8Zw0NujixxtA_va2CU41PHJQ/edit?usp=sharing
 
+Çalışan Sözleşmesi https://docs.google.com/document/d/1IvkdZqsbts8rCMgMcQgfz3StrlpyR9cblrp-QI20BqI/edit?usp=sharing
 
 ## English
 
