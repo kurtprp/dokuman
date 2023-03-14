@@ -4,6 +4,10 @@
 
 Örnek Yatırım Sözleşmesi https://docs.google.com/document/d/1mC0bOZQcc_xWmMcadQKz-JHg7FizQuPeUoas8eKJcQY/edit?usp=sharing
 
+Örnek Kullanıcı Sözleşmesi https://docs.google.com/document/d/1TrCWi_gj5DRKgyFA8m550WTsqE9sGmD9Cb67qE0urlw/edit?usp=sharing
+
+İşbirliği Sözleşmesi https://docs.google.com/document/d/1Y-jDLU7astwd2CbV7XO8Zw0NujixxtA_va2CU41PHJQ/edit?usp=sharing
+
 
 ## English
 
